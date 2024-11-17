@@ -15,3 +15,4 @@ i am 19!!!!! please dni if under 16
 ![tumblr_inline_o95kuxlqkl1rqscnx_250](https://github.com/user-attachments/assets/4c1e01ee-0e82-4a63-b358-4a4ac20bff45)
 
 ![OddhmLm](https://github.com/user-attachments/assets/ea6f03cb-3619-428e-bc66-df959cf6280f)
+![OddhmLm](https://github.com/user-attachments/assets/827c0dc9-3d70-4e10-8645-3aafcffa65fb)
